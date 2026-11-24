@@ -10,6 +10,8 @@ O Movimento Hare Krishna foi trazido ao Ocidente em 1965 por A.C. Bhaktivedanta 
 
 Com base nos ensinamentos do Senhor Krishna, conforme compreendidos por Sua Divina Graça Swami Bhaktipada — seu fundador —, a Cidade de Deus tem suas raízes no movimento Hare Krishna (ISKCON); contudo, por ser uma cidade inter-religiosa, a Cidade de Deus é, há algum tempo, independente da ISKCON, atendendo pessoas de todas as crenças por meio de diversos centros ao redor do mundo.
 
+<sub>Este artigo faz parte de um projeto de arquivamento no qual traduzo documentos relevantes do *Sourcebook for Earth's Community of Religions*. Para conferir a lista completa de documentos arquivados e traduzidos, **[clique aqui](https://github.com/cyprianscafe/biblioteca-de-babel/blob/main/arquivo-cole%C3%A7%C3%B5es/arquivo-sourcebook-for-earths-community-of-religions.md)**.</sub>
+
 ---
 
 <details>
